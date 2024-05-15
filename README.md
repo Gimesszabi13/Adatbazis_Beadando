@@ -5,6 +5,6 @@
 
 Sziládi Péter Sándor (G02)
 
-Körmendy-Rácz Bence János (G01)
+Körmendy-Rácz Bence János (G03)
 
 Gimes Szabolcs (G04)
